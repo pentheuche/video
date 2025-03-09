@@ -1,5 +1,9 @@
 The ICC Champions Trophy 2025 reaches its thrilling climax with India facing New Zealand in the final at the iconic Dubai International Cricket Stadium on 9th March.
 
+[🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE](https://ensvivallstreamsportsworld.blogspot.com/)
+
+[🆆🅰🆃🅲🅷🔴▶️ CLICK HERE TO LIVE STREAM](https://ensvivallstreamsportsworld.blogspot.com/)
+
 Both teams have been in superb form throughout the tournament and now stand on the cusp of securing the coveted title. India, led by Rohit Sharma, boasts a line-up filled with formidable match-winners, while New Zealand, under the leadership of Mitchell Santner, has shown resilience and tactical brilliance.
 
 Champions in 2002 and 2013, India have cruised into the final as they seek to become the first team to win the ICC Champions Trophy three times. Expertly led by captain Rohit Sharma, they won all three group games before securing a four-wicket victory over Australia in the semi-finals.
